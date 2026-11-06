@@ -1,3 +1,3 @@
 #683a0020c576524ab68e264a02ff56e7e17765fb cautious-parakeet
 SHOSHIN
-67966b5ab6f98dc5e6facc5bec9089e2369e47c7
+dard disk C
